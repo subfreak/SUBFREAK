@@ -4,6 +4,7 @@ u can call me vesper , SUBSPACE or cyrus !!! or whatever character im cosplaying
 I LOVE DRAWUNG ON STRAWPAGES!!!!!!!!!!! IF YOU'D EVER LIKE A DRAWINGG,,, MAAYBE WHISPER ME,, WITH UR FAV CHARACTER,,,? HI.. (REMINDER !!! I SPECIALIZE IN ROBLOXIANS AND OBJECTS/ALGERABLIENS !! SORRY ^^)
 
 C + H ALWAUS!!! BUT IM USUALLY OFFTAB , DRAWING / WATCHING TV OR STUFF LIKE DAT :P
+
 pls no roleplay with me i get scare aah
 
 <!--
