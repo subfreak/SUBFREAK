@@ -8,6 +8,8 @@ im kinda dookie at talking to other people,,, Soorryy..
 
 also pls no roleplay with me i get scare aah
 
+SHIPS CAN ALWATS INT :D IDC!! um,, just dont be like a problematic omne,, YKMOW!!
+
 I LOVE DRAWUNG ON STRAWPAGES!!!!!!!!!!! IF YOU'D EVER LIKE A DRAWINGG,,, MAAYBE WHISPER ME,, WITH UR FAV CHARACTER,,,? HI.. (REMINDER !!! I SPECIALIZE IN ROBLOXIANS AND OBJECTS/ALGERABLIENS !! SORRY ^^)
 
 <!--
