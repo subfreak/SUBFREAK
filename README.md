@@ -8,9 +8,9 @@ im kinda dookie at talking to other people,,, Soorryy..
 
 also pls no roleplay with me i get scare aah
 
-SHIPS CAN ALWATS INT :D IDC!! um,, just dont be like a problematic omne,, YKMOW!!
+SHIPS CAN ALWATS INT :D IDC!! (includes ocs, if u so please!!) um,, just dont be like a problematic omne,, YKMOW!!
 
-I LOVE DRAWUNG ON STRAWPAGES!!!!!!!!!!! IF YOU'D EVER LIKE A DRAWINGG,,, MAAYBE WHISPER ME,, WITH UR FAV CHARACTER,,,? HI.. (REMINDER !!! I SPECIALIZE IN ROBLOXIANS AND OBJECTS/ALGERABLIENS !! SORRY ^^)
+i LOVE. drawing on strawpages in my freetime,, if u get a strawpage drawing signed -subfreak T'WAS MEEE!!
 
 <!--
 **subfreak/SUBFREAK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
