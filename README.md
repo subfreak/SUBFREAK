@@ -10,7 +10,7 @@ also pls no roleplay with me i get scare aah
 
 SHIPS CAN ALWATS INT :D IDC!! (includes ocs, if u so please!!) um,, just dont be like a problematic omne,, YKMOW!!
 
-i LOVE. drawing on strawpages in my freetime,, if u get a strawpage drawing signed -subfreak T'WAS MEEE!!
+i LOVE. drawing on strawpages in my freetime,, if u get a strawpage drawing signed -subfreak (if theres enough space) T'WAS MEEE!!
 
 <!--
 **subfreak/SUBFREAK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
