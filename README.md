@@ -1,10 +1,11 @@
 ## HI THIS IS JYUST A FILLER ATM!!!
 [](https://i.postimg.cc/YCdJ7x7b/95a7723f.gif)
-u can call me vesper , SUBSPACE or cyrus !!! or whatever character im cosplaying as ^^^
+you can call me vesper , or whoever im cosing as :]
 
 C + H ALWAUS!!! BUT IM USUALLY OFFTAB , DRAWING / WATCHING TV OR STUFF LIKE DAT :P
 
 im kinda dookie at talking to other people,,, Soorryy..
+plus i tend to be nonverbal [ NOT BIG ON SOCIAL INTERACTIONS MAJORITY OF THE TIME !!! ]
 
 also pls no roleplay with me i get scare aah
 
