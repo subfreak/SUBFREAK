@@ -5,7 +5,7 @@ you can call me vesper , or whoever im cosing as :]
 C + H ALWAUS!!! BUT IM USUALLY OFFTAB , DRAWING / WATCHING TV OR STUFF LIKE DAT :P
 
 im kinda dookie at talking to other people,,, Soorryy..
-plus i tend to be nonverbal [ NOT BIG ON SOCIAL INTERACTIONS MAJORITY OF THE TIME !!! ]
+plus i tend to be nonverbal [ NOT BIG ON SOCIAL INTERACTIONS MAJORITY OF THE TIME !!!  NV in my pony name should indicate this! :3 ]
 
 also pls no roleplay with me i get scare aah
 
