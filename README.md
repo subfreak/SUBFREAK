@@ -1,5 +1,4 @@
 ## epiclasersword
-[![Gnp9g-LDXg-AAt-T3a.jpg](https://i.postimg.cc/d1tcs8tR/Gnp9g-LDXg-AAt-T3a.jpg)](https://postimg.cc/CZtQJn8d)
 
 hi im sword or vesper im cool with being calldd anything
 c+h is always cool w me
